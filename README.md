@@ -1,1 +1,0 @@
-Code forces Querstion answer
